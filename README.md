@@ -7,3 +7,5 @@ https://cufos.org/resources/research-projects/maxar.com
 
 https://www.et-cultures.com/blog
 
+https://link.motherjones.com/public/34415116
+
